@@ -23,6 +23,7 @@ cubase-13-free cubase-13-pro cubase-pro-13 cubase-free-12 cubase-download cubase
 <li>EDAGQ-5EUU0-3SPEN-WX7HB-A0CVQ</li>
 <li>VWDD5-OBP0Q-XFGWR-ZE4U5-GH3U6</li>
 </ul>
+
 # Requirements:
 Windows 10/11
 
